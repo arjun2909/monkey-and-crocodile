@@ -1,0 +1,1 @@
+There was a lonely monkey who was in the forest, one day a crocodile and its wife came to eat it. 
